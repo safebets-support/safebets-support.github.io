@@ -49,3 +49,7 @@ We may update our Privacy Policy periodically. We will notify you of any changes
 7. Contact Us
 If you have any questions or concerns about this Privacy Policy or your data, please contact us at:
 safebets.help@gmail.com.
+
+No Real Money: This app is for entertainment purposes only, involves no real money wagering, and has no real-money payouts.
+
+No Guarantee of Winning: The app's outcomes are for fun and do not guarantee success in real-world betting.
